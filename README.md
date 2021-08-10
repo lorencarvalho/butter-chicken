@@ -1,25 +1,25 @@
 ## Marinade
 
-* 1 cup - Greek yogurt
-* 4 Cloves garlic, minced
-* 1 tbsp Fresh ginger, minced
-* 1 Lemon, juiced
-* 2 tsp Kosher salt
-* 1 tbsp garam masala
-* 3 lbs Boneless, skinless, chicken thighs, cut into 2 inch pieces
+* 1/2 cup greek yogurt
+* 2 cloves garlic, minced
+* 1/2 tbsp fresh ginger, minced
+* 1/2 lemon, juiced
+* 1 tsp kosher salt
+* 1/2 tbsp garam masala
+* 1 & 1/2 lbs boneless skinless chicken (thighs or breast), cut into 2 inch pieces
 
 ## Butter Chicken
 
-* ¾ cup Brummel & brown organic buttery yogurt spread
-* 2 Onions, chopped
-* 4 Cloves garlic, chopped
-* 2 tsp Cinnamon
-* ¼ tsp Cayenne
-* 1 tsp Kosher salt
-* 2 tsp Cumin
-* 1 tbsp Garam masala
-* 1 tsp Turmeric
-* 2 (28 oz) cans Diced tomatoes
+* 1/3 cup brummel & brown organic buttery yogurt spread
+* 1 yellow onion, chopped
+* 2 cloves garlic, chopped
+* 1 tsp cinnamon
+* 1/4 tsp cayenne
+* 1 tsp kosher salt
+* 1 tsp cumin
+* 1/2 tbsp garam masala
+* 1/2 tsp turmeric
+* 1 28 oz can diced tomatoes
 
 ## Method
 
